@@ -1,1 +1,1 @@
-# Not-cias-e-curiosidades-sobre-tecnologia-e-Intelig-ncia-Artificial--Thomas-1DS
+Notícias e curiosidades sobre tecnologia e Inteligência Artificial
